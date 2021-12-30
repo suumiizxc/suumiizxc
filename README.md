@@ -1,5 +1,5 @@
-### Hi there 👋
-## Hi everyone</strong>
+### Hi there 😜🍕🍔🍔🍟🌭🌭🍿🧂🥓🍺🍻
+## I really like to learn programming and computing analysis. </strong>
 
 ----
 
