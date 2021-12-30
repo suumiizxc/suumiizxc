@@ -1,5 +1,6 @@
 ### Hi there 😜🍕🍔🍔🍟🌭🌭🍿🧂🥓🍺🍻
-## I really like to learn programming and computing analysis. </strong>
+## I am bad user for github hehehe 😅😅 
+
 
 ----
 
